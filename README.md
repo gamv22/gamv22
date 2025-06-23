@@ -1,4 +1,4 @@
-[![Banner-2.png](https://i.postimg.cc/0Q0wFyh7/Banner-2.png)](https://postimg.cc/k6DGtqJ5)
+[![Banner-4.png](https://i.postimg.cc/Wb95YPT3/Banner-4.png)](https://postimg.cc/hfd8h6JW)
 
 ## Hey, I'm Gabriel Miño!
 
